@@ -4,4 +4,4 @@
 - 🔸 Mail : s1trixroot@pm.me
 - 🔸 Instagram : s1trix.design
 - 🔸 Discord : s1triX#4447
-- 🔸 Website : s1trix.carrd.co 
+- 🔸 Website : https://s1trix.carrd.co 
