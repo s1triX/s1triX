@@ -1,0 +1,7 @@
+- 🔸 Hi, I’m @s1triX
+- 🔸 I'm front-end developer & ui/ux designer
+- 🔸 Contact Me 
+- 🔸 Mail : s1trixroot@pm.me
+- 🔸 Instagram : s1trix.design
+- 🔸 Discord : s1triX#4447
+- 🔸 Website : s1trix.carrd.co 
