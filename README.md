@@ -1,5 +1,5 @@
 - 🔸 Hi, I’m @s1triX
-- 🔸 I'm front-end developer & designer
+- 🔸 front-end developer & designer
 - 🔸 Mail : s1trixroot@pm.me
 - 🔸 Instagram : s1trix.design
 - 🔸 Discord : s1triX#4447
