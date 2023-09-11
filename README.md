@@ -2,5 +2,5 @@
 - 🔸 ui/ux designer
 - 🔸 Mail : dev@s1trix.xyz
 - 🔸 Instagram : s1trix.design
-- 🔸 Discord : s1triX#4447
+- 🔸 Discord : s1triX
 - 🔸 Website : https://s1trix.xyz
