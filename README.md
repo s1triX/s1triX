@@ -1,5 +1,5 @@
 - 🔸 Hi, I’m @s1triX
-- 🔸 web developer & ui/ux designer
+- 🔸 ui/ux designer
 - 🔸 Mail : dev@s1trix.xyz
 - 🔸 Instagram : s1trix.design
 - 🔸 Discord : s1triX#4447
